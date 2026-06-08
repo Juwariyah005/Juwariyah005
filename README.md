@@ -1,4 +1,4 @@
-# Hi there 👋, I'm Syeda Juwariyah Fatima
+# Hi there 👋, I'm Juwariyah
 
 🎓 B.Tech Student in Artificial Intelligence & Machine Learning (AIML) 
 
